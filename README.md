@@ -3,7 +3,7 @@
 Created by Galor Siboni & Nadav Halevy
 
 #Video
-[https://drive.google.com/file/d/124xe4AWEM-BJ6kR8zq3V7SgB_1N6cBSd/view?usp=sharing](url)
+https://drive.google.com/file/d/124xe4AWEM-BJ6kR8zq3V7SgB_1N6cBSd/view?usp=sharing
 
 
 #Screenshots
